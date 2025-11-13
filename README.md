@@ -1,1 +1,0 @@
-# MAST-POE-Bastian-Kindness-2025
